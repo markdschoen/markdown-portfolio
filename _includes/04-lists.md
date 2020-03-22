@@ -1,1 +1,1 @@
-Replace this with a list of your favorite things.
+Backpacking across the world, making other people smile, running in the rain
